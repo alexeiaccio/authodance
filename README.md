@@ -1,2 +1,2 @@
 # authodance
-http://authodance.tk
+http://authodance.accio.pro/
